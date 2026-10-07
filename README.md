@@ -1,0 +1,2 @@
+# premium-compo-ornament-001-compo-ornament-mold-press-fr
+Struggling to track your compo ornament projects across scattered spreadsheets, photos, and notebooks? The Compo Ornament &amp; Mold Press Frame Craft Lab is your all-in-one Notion workspace designed specifically for ornament makers who need to organize molds, press techniques, frame designs, and production batches in one centralized lab.  Stop wasting
